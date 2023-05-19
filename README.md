@@ -7,3 +7,7 @@ https://www.tinkercad.com/things/bB8yNBdO1GX?sharecode=wbCjGsgZHZBqu6ySdttIC_hrl
 Os sensores aplicados são apenas alguns, apenas os disponíseis no site Tinkercad.
 
 Se quiser, pode pesquisar no site do tinkercad exatamente, com as aspas, por: "Copy of Projeto_Sensores_ufc"
+
+Link dos artigos
+
+https://we.tl/t-q4vLTV2fNK
